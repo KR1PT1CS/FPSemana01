@@ -1,0 +1,1 @@
+Deixei comentários pois achei necessidade de explicar o raciocínio 
